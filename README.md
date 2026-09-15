@@ -1,4 +1,4 @@
-## Carina Holanda
+# Carina Holanda
 
-**`Cibersegurança(em formação) | Cabeamento Estrutural(em formação) | Desenvolvedora WEB`**
+**Cibersegurança(em formação) | Cabeamento Estrutural(em formação) | Desenvolvedora WEB**
 ---
